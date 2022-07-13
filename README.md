@@ -3,7 +3,6 @@
 - 📫 How to reach me <marknjama@outlook.com
 
 
-# __Intern_journal__  :kenya: 🔬:
 
 ## __Hello!__
 
